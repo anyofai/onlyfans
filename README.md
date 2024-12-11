@@ -30,7 +30,7 @@ OnlyFans并未开发独立的APP客户端，全球用户只能通过OnlyFans官�
 
 第一步：访问OnlyFans官网并点击注册。
 
-* OnlyFans官网地址：https://onlyfans.com/
+* OnlyFans官网地址：onlyfans.com
 
 第二步：填写注册所需的个人信息，包括邮箱、用户名和密码等，确保信息准确无误。
 
