@@ -146,7 +146,7 @@ OK，以上两种方式都非常高效且便捷。第一种方式适合寻找你
 
 ### OnlyFans支持哪些支付方式？
 
-OnlyFans目前主要支持国际信用卡和借记卡支付，包括Visa和MasterCard等。然而，对于中国大陆用户来说，国内发行的信用卡和借记卡通常无法在OnlyFans上完成支付。此外，支付宝和微信支付等国内常用的支付方式也不被支持。因此，中国用户必须选择使用虚拟信用卡服务，如WildCard，才能成功订阅OnlyFans。 
+OnlyFans目前主要支持国际信用卡和借记卡支付，包括Visa和MasterCard等。然而，对于中国大陆用户来说，国内发行的信用卡和借记卡通常无法在OnlyFans上完成支付。此外，支付宝和微信支付等国内常用的支付方式也不被支持。因此，中国用户必须选择使用虚拟信用卡服务，如<a href="https://bewildcard.com/i/ANYOFAI">WildCard虚拟信用卡</a>，才能成功订阅OnlyFans。 
 
 ### 为什么Onlyfans的首页啥也没有？ 
 
@@ -157,6 +157,8 @@ OnlyFans的首页默认展示平台推荐的内容，但如果你刚注册账号
 如果在注册OnlyFans时收不到验证码，可以尝试以下方法。首先，确保注册时填写的邮箱地址正确，避免因输入错误导致无法接收验证码。其次，检查邮箱的垃圾邮件文件夹，因为验证码邮件可能被误判为垃圾邮件。此外，有时邮件可能会有延迟，建议稍等几分钟再刷新邮箱查看。如果仍未收到，可以在注册页面点击“重新发送验证码”按钮，确保邮件再次发送到你的邮箱。同时，检查你的网络连接是否正常，以避免注册过程中的延迟或错误。
 
 如果你使用的是国内邮箱（如QQ邮箱或163邮箱），可能因为邮件服务商的限制导致无法接收验证码。在这种情况下，建议尝试使用Gmail或Outlook等国际邮箱重新注册。你还可以通过WildCard虚拟信用卡平台提供的免费邮箱完成OnlyFans账户注册。
+
+* WildCard虚拟信用卡官网：<a href="https://bewildcard.com/i/ANYOFAI">https://bewildcard.com/i/ANYOFAI</a>
 
 ![注册Onlyfans时收不到验证码怎么办](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/OnlyFans-11.jpg)
 
@@ -171,6 +173,8 @@ OnlyFans的首页默认展示平台推荐的内容，但如果你刚注册账号
 此外，请确保你的WildCard虚拟信用卡余额充足，至少覆盖订阅费用和可能的验证费用。如果余额不足，将无法完成绑定。建议在充值后重新尝试绑定。
 
 如果问题依然未解决，可以联系WildCard虚拟信用卡的在线客服。客服通常可以快速解决与卡片相关的技术问题，并提供详细的指导，帮助你成功完成OnlyFans账户的信用卡绑定。通过以上方法，你可以顺利完成绑定并开始使用OnlyFans。
+
+* WildCard虚拟信用卡官网：<a href="https://bewildcard.com/i/ANYOFAI">https://bewildcard.com/i/ANYOFAI</a>
 
 ### Onlyfans需要验证年龄怎么办？ 
 
