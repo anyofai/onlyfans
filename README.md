@@ -74,43 +74,35 @@ OnlyFans是近年来最火爆的国外私人社交平台之一，但如果想观
 
 接下来，我们将手把手教大家如何玩转OnlyFans。只需按照我们的操作步骤执行，你就可以轻松体验平台的全部功能！
 
-### 第一步：打开WildCard官网，并使用手机号登录。
+### 第一步：打开野卡官网，使用国内手机号完成注册。
 
-* WildCard官网地址：<a href="https://bewildcard.com/i/ANYOFAI">https://bewildcard.com/i/ANYOFAI</a>
+* 野卡官网地址：<a href="https://yeka.ai/i/ANYOFAI">https://yeka.ai/i/ANYOFAI</a>
 
-![打开WildCard官网，并使用手机号登录](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/OnlyFans-4.jpg)
+### 第二步：先点击左侧的“立即开通”，然后再点击“开通会员”。
 
-### 第二步：点击“我的卡片”，然后选择“去开通”，输入邀请码“ANYOFAI”，并支付开卡费用。
+### 第三步：选择服务年限，输入邀请码“ANYOFAI”，并支付开卡费用。
 
-这里支付的是WildCard虚拟信用卡的开卡费，毕竟你使用了人家的服务，多少要给点“辛苦费”。除了这笔开卡费外，不会再收取其他任何费用。此外，这张卡可以长期使用，除了订阅OnlyFans之外，你还可以用它订阅ChatGPT Plus、ChatGPT Pro、Claude Pro、App Store、Midjourney等多个国际服务，而且没有月租费。
+这里支付的是WildCard虚拟信用卡的开卡费，毕竟你使用了人家的服务，多少要给点“辛苦费”。除了这笔开卡费外，**不会再收取其他任何费用**。此外，这张卡可以长期使用，除了订阅OnlyFans之外，你还可以用它订阅ChatGPT Plus、ChatGPT Pro、Claude Pro、App Store、Midjourney等多个国际服务，而且**没有月租费**。
 
-注意：使用独家优惠码“ANYOFAI”，开卡费可以立减1美金！
+注意：使用独家优惠码“**ANYOFAI**”，开卡费可以立减1美金！
 
-![点击“我的卡片”，然后选择“去开通”，输入邀请码“ANYOFAI”，并支付开卡费用](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/OnlyFans-5.jpg)
+### 第四步：完善个人信息，并点击“完成认证”。
 
-### 第三步：完善个人信息，并点击“暂不认证”完成开卡。
+注意：当你点击了“完成认证”按钮之后，系统会引导你进行实名认证。但如果你不想泄露隐私信息，完全可以忽略这个步骤。需要注意的是，如果不实名认证，野卡虚拟信用卡的每月支付额度为60美金；而完成实名认证后，支付额度将提升至3000美金。是否进行实名认证，可以根据你的实际需求决定。
 
-注意：系统会引导你进行实名认证，但如果你不想泄露隐私，可以直接点击“暂不认证”完成开卡。需要注意的是，如果不实名认证，WildCard虚拟信用卡的每月支付额度为60美金；而完成实名认证后，支付额度将提升至3000美金。是否进行实名认证，可以根据你的实际需求决定。
+### 第五步：点击“订阅服务”，然后点击“充值”按钮，并至少充值1美金。
 
-![完善个人信息，并点击“暂不认证”完成开卡](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/OnlyFans-6.jpg)
+注意：在为OnlyFans绑定信用卡之前，需要先向野卡虚拟信用卡中充值1美金。这是因为OnlyFans会尝试扣费0.1美金，用以验证信用卡的有效性。
 
-### 第四步：点击“我的卡片”，然后点击“充值”按钮，至少充值1美金。
+### 第六步：复制并保存用于订阅OnlyFans所需的信用卡信息。
 
-注意：在为OnlyFans绑定信用卡之前，需要先向WildCard虚拟信用卡中充值1美金。这是因为OnlyFans会尝试扣费0.1美金，用以验证信用卡的有效性。
-
-![点击“我的卡片”，然后点击“充值”按钮，至少充值1美金](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/OnlyFans-7.jpg)
-
-### 第五步：再次点击“我的卡片”，即可查看虚拟信用卡的所有详细信息。
-
-![再次点击“我的卡片”，即可查看虚拟信用卡的所有详细信息](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/OnlyFans-8.jpg)
-
-### 第六步：登录OnlyFans，点击“新增信用卡”，将虚拟信用卡信息复制粘贴到信用卡页面，并点击“提交”。
+### 第七步：登录OnlyFans，点击“新增信用卡”，将虚拟信用卡信息复制粘贴到信用卡页面，并点击“提交”。
 
 注意：请确保准确复制粘贴WildCard虚拟信用卡信息，避免填写错误导致绑定失败。
 
 ![登录OnlyFans，点击“新增信用卡”，将虚拟信用卡信息复制粘贴到信用卡页面，并点击“提交”](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/OnlyFans-9.jpg)
 
-### 第七步：找到你想订阅的OnlyFans博主并进行订阅。
+### 第八步：找到你想订阅的OnlyFans博主并进行订阅。
 
 注意：如果你不知道如何寻找OnlyFans博主，可以参考下文教程获取相关方法。
 
