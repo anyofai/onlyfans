@@ -78,13 +78,21 @@ OnlyFans是近年来最火爆的国外私人社交平台之一，但如果想观
 
 * 野卡官网地址：<a href="https://yeka.ai/i/ANYOFAI">https://yeka.ai/i/ANYOFAI</a>
 
+![OnlyFans怎样玩？中国人怎么用OnlyFans？OnlyFans订阅步骤一：打开野卡官网，使用国内手机号完成注册](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/Yeka-1.png)
+
 ### 第二步：先点击左侧的“立即开通”，然后再点击“开通会员”。
+
+![OnlyFans怎样玩？中国人怎么用OnlyFans？OnlyFans订阅步骤二：先点击左侧的“立即开通”](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/Yeka-2.png)
+
+![OnlyFans怎样玩？中国人怎么用OnlyFans？OnlyFans订阅步骤二：点击“开通会员”](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/Yeka-3.png)
 
 ### 第三步：选择服务年限，输入邀请码“ANYOFAI”，并支付开卡费用。
 
 这里支付的是WildCard虚拟信用卡的开卡费，毕竟你使用了人家的服务，多少要给点“辛苦费”。除了这笔开卡费外，**不会再收取其他任何费用**。此外，这张卡可以长期使用，除了订阅OnlyFans之外，你还可以用它订阅ChatGPT Plus、ChatGPT Pro、Claude Pro、App Store、Midjourney等多个国际服务，而且**没有月租费**。
 
 注意：使用独家优惠码“**ANYOFAI**”，开卡费可以立减1美金！
+
+![OnlyFans怎样玩？中国人怎么用OnlyFans？OnlyFans订阅步骤三：选择服务年限，输入邀请码“ANYOFAI”，并支付开卡费用](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/Yeka-4.png)
 
 ### 第四步：完善个人信息，并点击“完成认证”。
 
