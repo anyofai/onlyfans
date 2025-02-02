@@ -1,6 +1,6 @@
 # 最新OnlyFans订阅指南：OnlyFans怎样玩？中国人怎么用OnlyFans？
 
-<p align="center">最近更新于：2025年1月3日</p>
+<p align="center">最近更新于：2025年2月2日</p>
 
 ![OnlyFans订阅，OnlyFans怎样玩，中国人怎么用OnlyFans](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/Onlyfans%E8%AE%A2%E9%98%85.png)
 
