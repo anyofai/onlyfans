@@ -98,23 +98,29 @@ OnlyFans是近年来最火爆的国外私人社交平台之一，但如果想观
 
 注意：当你点击了“完成认证”按钮之后，系统会引导你进行实名认证。但如果你不想泄露隐私信息，完全可以忽略这个步骤。需要注意的是，如果不实名认证，野卡虚拟信用卡的每月支付额度为60美金；而完成实名认证后，支付额度将提升至3000美金。是否进行实名认证，可以根据你的实际需求决定。
 
+![OnlyFans怎样玩？中国人怎么用OnlyFans？OnlyFans订阅步骤四：完善个人信息，并点击“完成认证”](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/Yeka-6.png)
+
 ### 第五步：点击“订阅服务”，然后点击“充值”按钮，并至少充值1美金。
 
 注意：在为OnlyFans绑定信用卡之前，需要先向野卡虚拟信用卡中充值1美金。这是因为OnlyFans会尝试扣费0.1美金，用以验证信用卡的有效性。
 
+![OnlyFans怎样玩？中国人怎么用OnlyFans？OnlyFans订阅步骤五：点击“订阅服务”，然后点击“充值”按钮，并至少充值1美金](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/Yeka-7.png)
+
 ### 第六步：复制并保存用于订阅OnlyFans所需的信用卡信息。
+
+![OnlyFans怎样玩？中国人怎么用OnlyFans？OnlyFans订阅步骤六：复制并保存用于订阅OnlyFans所需的信用卡信息](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/Yeka-8.png)
 
 ### 第七步：登录OnlyFans，点击“新增信用卡”，将虚拟信用卡信息复制粘贴到信用卡页面，并点击“提交”。
 
 注意：请确保准确复制粘贴WildCard虚拟信用卡信息，避免填写错误导致绑定失败。
 
-![登录OnlyFans，点击“新增信用卡”，将虚拟信用卡信息复制粘贴到信用卡页面，并点击“提交”](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/OnlyFans-9.jpg)
+![OnlyFans怎样玩？中国人怎么用OnlyFans？OnlyFans订阅步骤七：登录OnlyFans，点击“新增信用卡”，将虚拟信用卡信息复制粘贴到信用卡页面，并点击“提交”](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/OnlyFans-9.jpg)
 
 ### 第八步：找到你想订阅的OnlyFans博主并进行订阅。
 
 注意：如果你不知道如何寻找OnlyFans博主，可以参考下文教程获取相关方法。
 
-![找到你想订阅的OnlyFans博主并进行订阅](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/OnlyFans-10.jpg)
+![OnlyFans怎样玩？中国人怎么用OnlyFans？OnlyFans订阅步骤八：找到你想订阅的OnlyFans博主并进行订阅](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/OnlyFans-10.jpg)
 
 OK，通过以上步骤，你已经成功为OnlyFans绑定信用卡。接下来，你可以随时随地欣赏喜欢的OnlyFans博主所提供的独家内容，无论是精彩的照片、视频，还是与创作者的互动，都可以轻松解锁。
 
