@@ -44,17 +44,17 @@ OnlyFans并未开发独立的APP客户端，全球用户只能通过OnlyFans官�
 
 * OnlyFans官网地址：onlyfans.com
 
-![访问OnlyFans官网并点击注册](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/OnlyFans-1.jpg)
+![注册OnlyFans帐号第一步：访问OnlyFans官网并点击注册](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/OnlyFans-1.jpg)
 
 ### 第二步：填写注册所需的个人信息，包括邮箱、用户名和密码等，确保信息准确无误。
 
-![填写注册所需的个人信息，包括邮箱、用户名和密码等，确保信息准确无误](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/OnlyFans-2.jpg)
+![注册OnlyFans帐号第二步：填写注册所需的个人信息，包括邮箱、用户名和密码等，确保信息准确无误](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/OnlyFans-2.jpg)
 
 ### 第三步：完成邮箱验证。
 
 注意：系统会向你填写的邮箱地址发送验证邮件，点击邮件中的验证链接即可成功完成账号注册。
 
-![完成邮箱验证](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/OnlyFans-3.jpg)
+![注册OnlyFans帐号第三步：完成邮箱验证](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/OnlyFans-3.jpg)
 
 恭喜你，截止到目前为止，你已经成功完成了OnlyFans账号的注册。需要再次提醒的是，即使某些OnlyFans博主的主页支持免费订阅，用户仍需绑定一张信用卡后才能正常观看内容。如果未绑定信用卡，可能无法查看任何内容。
 
@@ -68,7 +68,7 @@ OnlyFans是近年来最火爆的国外私人社交平台之一，但如果想观
 
 那么，Onlyfans怎样玩呢？大致可以分为三个步骤：
 
-* 1，获取一张野卡YEKA虚拟信用卡
+* 1，获取一张“野卡YEKA虚拟信用卡”
 * 2，为OnlyFans绑定信用卡 
 * 3，订阅你喜欢的OnlyFans博主
 
@@ -170,7 +170,7 @@ OnlyFans的首页默认展示平台推荐的内容，但如果你刚注册账号
 
 如果在注册OnlyFans时收不到验证码，可以尝试以下方法。首先，确保注册时填写的邮箱地址正确，避免因输入错误导致无法接收验证码。其次，检查邮箱的垃圾邮件文件夹，因为验证码邮件可能被误判为垃圾邮件。此外，有时邮件可能会有延迟，建议稍等几分钟再刷新邮箱查看。如果仍未收到，可以在注册页面点击“重新发送验证码”按钮，确保邮件再次发送到你的邮箱。同时，检查你的网络连接是否正常，以避免注册过程中的延迟或错误。
 
-如果你使用的是国内邮箱（如QQ邮箱或163邮箱），可能因为邮件服务商的限制导致无法接收验证码。在这种情况下，建议尝试使用Gmail或Outlook等国际邮箱重新注册。你还可以通过野卡虚拟信用卡平台提供的免费邮箱完成OnlyFans账户注册。
+如果你使用的是国内邮箱（如QQ邮箱或163邮箱），可能因为邮件服务商的限制导致无法接收验证码。在这种情况下，建议尝试使用Gmail或Outlook等国际邮箱重新注册。你还可以通过“野卡虚拟信用卡”平台提供的免费邮箱完成OnlyFans账户注册。
 
 * 野卡虚拟信用卡官网：<a href="https://yeka.ai/i/ANYOFAI">https://yeka.ai/i/ANYOFAI</a>
 
