@@ -1,6 +1,6 @@
 # 最新OnlyFans订阅指南：OnlyFans怎样玩？中国人怎么用OnlyFans？
 
-<p align="center">最近更新于：2025年2月3日</p>
+<p align="center">最近更新于：2025年2月13日</p>
 
 ![OnlyFans订阅，OnlyFans怎样玩，中国人怎么用OnlyFans](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/Onlyfans%E8%AE%A2%E9%98%85.png)
 
@@ -222,4 +222,4 @@ OnlyFans要求用户验证年龄是为了符合法律规定，确保未成年人
 
 * <a href="https://github.com/anyofai/sora">如何使用Sora</a>：Sora是什么？如何使用Sora？Sora入口在哪？Sora订阅保姆级教程！
 
-* <a href="https://anyofai.github.io/">WildCard怎么样</a>：本文将详细解答WildCard怎么样、WildCard安全吗等常见问题，并深入介绍WildCard虚拟信用卡能用来干什么以及如何获取WildCard虚拟信用卡。
+* <a href="https://anyofai.github.io/">野卡Yeka怎么样</a>：本文将详细解答“野卡Yeka怎么样”、“野卡Yeka安全吗”等常见问题，并深入介绍野卡虚拟信用卡能用来干什么以及如何获取野卡虚拟信用卡。
