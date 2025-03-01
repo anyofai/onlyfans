@@ -1,6 +1,6 @@
 # 最新OnlyFans订阅指南：OnlyFans怎样玩？中国人怎么用OnlyFans？
 
-<p align="center">最近更新于：2025年2月20日</p>
+<p align="center">最近更新于：2025年3月1日</p>
 
 ![OnlyFans订阅，OnlyFans怎样玩，中国人怎么用OnlyFans](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/Onlyfans%E8%AE%A2%E9%98%85.png)
 
@@ -215,6 +215,8 @@ OnlyFans要求用户验证年龄是为了符合法律规定，确保未成年人
 * <a href="https://github.com/anyofai/claude-pro-hezu">Claude Pro合租</a>：最可靠的Claude Pro拼车购买渠道推荐！银河录像局不仅安全可靠，还提供24小时在线客服，价格非常亲民，Claude Pro共享帐号价格低至8元，大大降低了使用Claude Pro的门槛，让更多用户能够轻松体验这一强大的AI工具。
 
 * <a href="https://github.com/anyofai/netflix-hezu">奈飞合租</a>：最安全实惠的奈飞拼车购买平台推荐！我们还为大家解答购买奈飞共享帐号的常见问题！
+
+* <a href="https://github.com/anyofai/youtube-premium">YouTube合租</a>：2025年油管Youtube家庭会员拼车平台推荐！如何以每月12元的价格购买YouTube Premium无广告会员？
 
 * <a href="https://github.com/anyofai/chatgpt-plus-recharge">ChatGPT Plus代充值</a>：ChatGPT代充安全吗？安全稳定的ChatGPT 4代充值平台推荐！本文推荐的ChatGPT Plus代续费订阅服务稳定可靠，价格便宜，信誉有保障。
 
