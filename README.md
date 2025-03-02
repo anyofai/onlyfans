@@ -122,7 +122,7 @@ OnlyFans是近年来最火爆的国外私人社交平台之一，但如果想观
 
 ![OnlyFans怎样玩？中国人怎么用OnlyFans？OnlyFans订阅步骤八：找到你想订阅的OnlyFans博主并进行订阅](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/OnlyFans-10.jpg)
 
-OK，通过以上步骤，你已经成功为OnlyFans绑定信用卡。接下来，你可以随时随地欣赏喜欢的OnlyFans博主所提供的独家内容，无论是精彩的照片、视频，还是与创作者的互动，都可以轻松解锁。
+OK，通过以上步骤，你已经成功为OnlyFans绑定信用卡。接下来，你可以随时随地欣赏喜欢的OnlyFans博主所提供的独家内容，无论是精彩的照片、视频，还是与创作者的互动，都可以轻松解锁。如果想了解更多关于野卡虚拟信用卡的信息，请查看：<a href="https://anyofai.github.io/">野卡安全吗</a>？
 
 ## 如何寻找OnlyFans博主？
 
