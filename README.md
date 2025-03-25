@@ -160,7 +160,7 @@ OK，以上两种方式都非常高效且便捷。第一种方式适合寻找你
 
 ### OnlyFans支持哪些支付方式？
 
-OnlyFans目前主要支持国际信用卡和借记卡支付，包括Visa和MasterCard等。然而，对于中国大陆用户来说，国内发行的信用卡和借记卡通常无法在OnlyFans上完成支付。此外，支付宝和微信支付等国内常用的支付方式也不被支持。因此，中国用户必须选择使用虚拟信用卡服务，如<a href="https://yeka.ai/i/ANYOFAI">野卡YEKA虚拟信用卡</a>，才能成功订阅OnlyFans。 
+OnlyFans目前主要支持国际信用卡和借记卡支付，包括Visa和MasterCard等。然而，对于中国大陆用户来说，国内发行的信用卡和借记卡通常无法在OnlyFans上完成支付。此外，支付宝和微信支付等国内常用的支付方式也不被支持。因此，中国用户必须选择使用虚拟信用卡服务，如<a href="https://yeka.ai/i/ANYOFAI">WildCard野卡虚拟信用卡</a>，才能成功订阅OnlyFans。 
 
 ### 为什么Onlyfans的首页啥也没有？ 
 
