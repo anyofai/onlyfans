@@ -68,15 +68,15 @@ OnlyFans是近年来最火爆的国外私人社交平台之一，但如果想观
 
 那么，Onlyfans怎样玩呢？大致可以分为三个步骤：
 
-* 1，获取一张“野卡YEKA虚拟信用卡”
+* 1，获取一张“WildCard野卡虚拟信用卡”
 * 2，为OnlyFans绑定信用卡 
 * 3，订阅你喜欢的OnlyFans博主
 
 接下来，我们将手把手教大家如何玩转OnlyFans。只需按照我们的操作步骤执行，你就可以轻松体验平台的全部功能！
 
-### 第一步：打开野卡官网，使用国内手机号完成注册。
+### 第一步：打开WildCard野卡官网，使用国内手机号完成注册。
 
-* 野卡官网地址：<a href="https://yeka.ai/i/ANYOFAI">https://yeka.ai/i/ANYOFAI</a>
+* WildCard野卡官网地址：<a href="https://yeka.ai/i/ANYOFAI">https://yeka.ai/i/ANYOFAI</a>
 
 ![OnlyFans怎样玩？中国人怎么用OnlyFans？OnlyFans订阅步骤一：打开野卡官网，使用国内手机号完成注册](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/Yeka-1.png)
 
@@ -122,7 +122,7 @@ OnlyFans是近年来最火爆的国外私人社交平台之一，但如果想观
 
 ![OnlyFans怎样玩？中国人怎么用OnlyFans？OnlyFans订阅步骤八：找到你想订阅的OnlyFans博主并进行订阅](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/OnlyFans-10.jpg)
 
-OK，通过以上步骤，你已经成功为OnlyFans绑定信用卡。接下来，你可以随时随地欣赏喜欢的OnlyFans博主所提供的独家内容，无论是精彩的照片、视频，还是与创作者的互动，都可以轻松解锁。如果想了解更多关于野卡虚拟信用卡的信息，请查看：<a href="https://anyofai.github.io/">野卡安全吗</a>？
+OK，通过以上步骤，你已经成功为OnlyFans绑定信用卡。接下来，你可以随时随地欣赏喜欢的OnlyFans博主所提供的独家内容，无论是精彩的照片、视频，还是与创作者的互动，都可以轻松解锁。如果想了解更多关于野卡虚拟信用卡的信息，请查看：<a href="https://anyofai.github.io/">WildCard野卡安全吗</a>？
 
 ## 如何寻找OnlyFans博主？
 
