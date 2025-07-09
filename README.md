@@ -74,6 +74,17 @@ OnlyFans是近年来最火爆的国外私人社交平台之一，但如果想观
 
 接下来，我们将手把手教大家如何玩转OnlyFans。你只需按照我们的操作步骤执行，即可轻松体验平台的全部功能！
 
+<blockquote>
+
+重要提示：近期我们收到部分用户反馈，在为OnlyFans绑定信用卡时遇到以下两个问题：
+
+* 申请WildCard信用卡时提示不支持OnlyFans；
+* 在为OnlyFans绑定WildCard信用卡时失败了；
+
+为此我们专门咨询了WildCard的官方客服，确认这两种情况属于极少数个案，绝大多数用户还是可以正常使用。若你也遇到类似问题，请立即联系WildCard信用卡24小时在线客服，客服会免费给你赠送一张全新的虚拟信用卡，然后就可以正常订阅OnlyFans会员了。
+
+</blockquote>
+
 ### 第一步：打开WildCard野卡官网，使用国内手机号完成注册。
 
 * WildCard野卡官网地址：<a href="https://yeka.ai/i/ANYOFAI">https://yeka.ai/i/ANYOFAI</a>
