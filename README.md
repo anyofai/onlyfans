@@ -1,6 +1,6 @@
 # 最新OnlyFans订阅指南：OnlyFans怎样玩？中国人怎么用OnlyFans？
 
-<p align="center">最近更新于：2025年5月25日</p>
+<p align="center">最近更新于：2025年7月9日</p>
 
 ![OnlyFans订阅，OnlyFans怎样玩，中国人怎么用OnlyFans](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/Onlyfans%E8%AE%A2%E9%98%85.png)
 
@@ -72,7 +72,7 @@ OnlyFans是近年来最火爆的国外私人社交平台之一，但如果想观
 * 2，为OnlyFans绑定信用卡 
 * 3，订阅你喜欢的OnlyFans博主
 
-接下来，我们将手把手教大家如何玩转OnlyFans。只需按照我们的操作步骤执行，你就可以轻松体验平台的全部功能！
+接下来，我们将手把手教大家如何玩转OnlyFans。你只需按照我们的操作步骤执行，即可轻松体验平台的全部功能！
 
 ### 第一步：打开WildCard野卡官网，使用国内手机号完成注册。
 
