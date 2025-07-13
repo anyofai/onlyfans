@@ -1,6 +1,18 @@
 # 最新OnlyFans订阅指南：OnlyFans怎样玩？中国人怎么用OnlyFans？
 
-<p align="center">最近更新于：2025年7月10日</p>
+<p align="center">最近更新于：2025年7月12日</p>
+
+<blockquote>
+
+#### 🚨🚨关于“WildCard野卡跑路”的重要说明🚨🚨
+
+很遗憾地通知大家，2025年7月12日中午，Wildcard野卡的官方群突然发布公告称，由于一些不可抗力因素，Wildcard将立即停止全部业务。
+
+也就是说，目前国内唯一可以用来给OnlyFans充值、而且我一直觉得非常好用的虚拟信用卡，现在也已经永久停止服务了。从今以后，国内普通用户想要订阅充值OnlyFans会变得更加困难。
+
+我们也在积极寻找可以替代“WildCard野卡”的服务。在此之前，大家可以添加我们的**微信（ VX号：ANYOFAI ）**，我们会为你提供一些订阅充值OnlyFans会员的平替方案。
+
+</blockquote>
 
 ![OnlyFans订阅，OnlyFans怎样玩，中国人怎么用OnlyFans](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/Onlyfans%E8%AE%A2%E9%98%85.png)
 
@@ -62,7 +74,7 @@ OnlyFans并未开发独立的APP客户端，全球用户只能通过OnlyFans官�
 
 OnlyFans是近年来最火爆的国外私人社交平台之一，但如果想观看OnlyFans上某位博主分享的内容，就必须先进行订阅。然而，非常遗憾的是，OnlyFans目前仅支持国外信用卡订阅，这意味着国内的双币Visa卡或其他类型的Visa卡都无法用于订阅OnlyFans。
 
-因此，对于绝大多数中国用户来说，要想订阅OnlyFans，唯一可行的解决方案是使用<a href="https://yeka.ai/i/ANYOFAI">WildCard野卡虚拟信用卡</a>。WildCard野卡是一家非常专业的虚拟信用卡服务平台，安全性极高，无需月租，可以长期使用。除了订阅OnlyFans，WildCard野卡信用卡还可用于订阅ChatGPT Plus、Claude Pro、App Store、Midjourney等多个国际服务。
+因此，对于绝大多数中国用户来说，要想订阅OnlyFans，唯一可行的解决方案是使用WildCard野卡虚拟信用卡。WildCard野卡是一家非常专业的虚拟信用卡服务平台，安全性极高，无需月租，可以长期使用。除了订阅OnlyFans，WildCard野卡信用卡还可用于订阅ChatGPT Plus、Claude Pro、App Store、Midjourney等多个国际服务。
 
 注意：许多新手用户喜欢在某宝上搜索“OnlyFans充值”“OnlyFans支付”“OnlyFans开通”等关键词，然后通过某宝购买虚拟信用卡。这种方式实际上非常危险，并不推荐。某宝上的价格通常很高，售后服务没有保障，购买后就没人管了。更重要的是，某宝上许多虚拟信用卡都是一次性使用的，许多新手购买后发现无法继续使用，最终哭晕在了厕所。
 
@@ -86,8 +98,6 @@ OnlyFans是近年来最火爆的国外私人社交平台之一，但如果想观
 </blockquote>
 
 ### 第一步：打开WildCard野卡官网，使用国内手机号完成注册。
-
-* WildCard野卡官网地址：<a href="https://yeka.ai/i/ANYOFAI">https://yeka.ai/i/ANYOFAI</a>
 
 ![OnlyFans怎样玩？中国人怎么用OnlyFans？OnlyFans订阅步骤一：打开WildCard野卡官网，使用国内手机号完成注册](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/Yeka-1.png)
 
@@ -165,7 +175,7 @@ OK，以上两种方式都非常高效且便捷。第一种方式适合寻找你
 
 ### OnlyFans支持哪些支付方式？
 
-OnlyFans目前主要支持国际信用卡和借记卡支付，包括Visa和MasterCard等。然而，对于中国大陆用户来说，国内发行的信用卡和借记卡通常无法在OnlyFans上完成支付。此外，支付宝和微信支付等国内常用的支付方式也不被支持。因此，中国用户必须选择使用虚拟信用卡服务，如<a href="https://yeka.ai/i/ANYOFAI">WildCard野卡虚拟信用卡</a>，才能成功订阅OnlyFans。 
+OnlyFans目前主要支持国际信用卡和借记卡支付，包括Visa和MasterCard等。然而，对于中国大陆用户来说，国内发行的信用卡和借记卡通常无法在OnlyFans上完成支付。此外，支付宝和微信支付等国内常用的支付方式也不被支持。因此，中国用户必须选择使用虚拟信用卡服务，如WildCard野卡虚拟信用卡，才能成功订阅OnlyFans。 
 
 ### 为什么Onlyfans的首页啥也没有？ 
 
@@ -176,8 +186,6 @@ OnlyFans的首页默认展示平台推荐的内容，但如果你刚注册账号
 如果在注册OnlyFans时收不到验证码，可以尝试以下方法。首先，确保注册时填写的邮箱地址正确，避免因输入错误导致无法接收验证码。其次，检查邮箱的垃圾邮件文件夹，因为验证码邮件可能被误判为垃圾邮件。此外，有时邮件可能会有延迟，建议稍等几分钟再刷新邮箱查看。如果仍未收到，可以在注册页面点击“重新发送验证码”按钮，确保邮件再次发送到你的邮箱。同时，检查你的网络连接是否正常，以避免注册过程中的延迟或错误。
 
 如果你使用的是国内邮箱（如QQ邮箱或163邮箱），可能因为邮件服务商的限制导致无法接收验证码。在这种情况下，建议尝试使用Gmail或Outlook等国际邮箱重新注册。你还可以通过“WildCard野卡虚拟信用卡”平台提供的免费邮箱完成OnlyFans账户注册。
-
-* WildCard野卡虚拟信用卡官网：<a href="https://yeka.ai/i/ANYOFAI">https://yeka.ai/i/ANYOFAI</a>
 
 ![注册Onlyfans时收不到验证码怎么办](https://raw.githubusercontent.com/anyofai/onlyfans/refs/heads/main/image/OnlyFans-11.jpg)
 
@@ -192,8 +200,6 @@ OnlyFans的首页默认展示平台推荐的内容，但如果你刚注册账号
 此外，请确保你的WildCard野卡虚拟信用卡余额充足，至少覆盖订阅费用和可能的验证费用。如果余额不足，将无法完成绑定。建议在充值后重新尝试绑定。
 
 如果问题依然未解决，可以联系WildCard野卡虚拟信用卡的在线客服。客服通常可以快速解决与卡片相关的技术问题，并提供详细的指导，帮助你成功完成OnlyFans账户的信用卡绑定。通过以上方法，你可以顺利完成绑定并开始使用OnlyFans。
-
-* WildCard野卡虚拟信用卡官网：<a href="https://yeka.ai/i/ANYOFAI">https://yeka.ai/i/ANYOFAI</a>
 
 ### Onlyfans需要验证年龄怎么办？ 
 
@@ -213,11 +219,11 @@ OnlyFans要求用户验证年龄是为了符合法律规定，确保未成年人
 * <a href="https://github.com/anyofai/claude-pro">Claude Pro订阅</a>：详细介绍如何获取国外虚拟信用卡和国外手机号，以及订阅Claude Pro的完整操作流程！
 * <a href="https://github.com/anyofai/midjourney">Midjourney订阅</a>：涵盖Midjourney账号注册和会员订阅的详细操作步骤，附带Midjourney使用教程！
 * <a href="https://github.com/anyofai/poe">Poe订阅</a>：包含国内订阅POE会员的详细操作步骤，以及如何购买POE合租账号的指南！
-* <a href="https://github.com/anyofai/x-twitter">Twitter X订阅</a>：提供订阅Twitter X的详细操作步骤，以及Grok 3的使用指南！
+* <a href="https://github.com/anyofai/x-twitter">Twitter X订阅</a>：提供订阅Twitter X的详细操作步骤，以及Grok 4的使用指南！
 * <a href="https://github.com/anyofai/suno">Suno订阅</a>：提供订阅Suno AI会员的详细操作步骤，以及Suno AI音乐创作的使用指南！
 * <a href="https://github.com/anyofai/sora">Sora订阅</a>：包含订阅Sora的详细操作步骤和Sora的使用方法！
 
-* <a href="https://github.com/anyofai/chatgpt-plus-hezu">ChatGPT Plus合租</a>：支持ChatGPT-4.5、DeepSeek-R1、Grok-3和Gemini-2 Pro等大模型！每月仅需27元！
+* <a href="https://github.com/anyofai/chatgpt-plus-hezu">ChatGPT Plus合租</a>：支持ChatGPT-4.5、DeepSeek-R1、Grok-4和Gemini-2 Pro等大模型！每月仅需27元！
 * <a href="https://github.com/anyofai/claude-pro-hezu">Claude Pro合租</a>：无需科学上网，镜像直连，会话隔离，保障隐私安全，无账号被封风险！每月仅需8元！
 * <a href="https://github.com/anyofai/midjourney-hezu">Midjourney合租</a>：提供国内镜像直连、官方标准会员合租、官方Pro会员合租等三种服务！每月仅需27元！
 * <a href="https://github.com/anyofai/netflix-hezu">Netflix奈飞合租</a>：提供独立子账号、支持设置pin码，可访问Netflix全球影视资源，全程质保！每月仅需20元！
