@@ -48,7 +48,7 @@ OnlyFans并未开发独立的APP客户端，全球用户只能通过OnlyFans官�
 
 ## 如何注册OnlyFans账号？
 
-注册OnlyFans账号非常简单，只需一个邮箱即可完成。而且OnlyFans对中国用户相对友好，支持使用国内的QQ邮箱和网易163邮箱进行注册。当然，如果你拥有Google账号或Twitter账号，也可以选择通过Google帐号或Twitter账号快速注册OnlyFans账号。注册onlyfans账号操作步骤如下：
+注册OnlyFans账号非常简单，只需一个邮箱即可完成。而且OnlyFans对中国用户相对友好，支持使用国内的QQ邮箱和网易163邮箱进行注册。当然，如果你拥有Google账号或Twitter账号，也可以选择通过Google账号或Twitter账号快速注册OnlyFans账号。注册onlyfans账号操作步骤如下：
 
 ### 第一步：访问OnlyFans官网并点击注册。
 
